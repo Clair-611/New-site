@@ -5,7 +5,7 @@
 1. Берегите лес от пожаров.
 2. Не засоряйте леса.
 
-![Сосновый лес](file:///C:/Users/meela/Downloads/Новая%20папка/20140420_113413.jpg)
+![Сосновый лес](https://user-images.githubusercontent.com/130981677/233845808-1bcf8904-a7ef-42af-a69c-2efd7e0c0b26.jpg)
    
 [Материал из Википедии — свободной энциклопедии.](https://ru.wikipedia.org/wiki/%D0%9B%D0%B5%D1%81)   
 
